@@ -6,7 +6,7 @@ Klicka på "Ekonomistyrning.pdf i fil-fältet -> Nedåtpilen i övre högra hör
 
 **Länk till att läsa PDF'n om du inte vill ladda ned den**
 
-https://smallpdf.com/file#s=5cd4311c-3c71-4b50-8636-f3ec3c374828
+https://smallpdf.com/file#s=bb885081-73d8-4350-801c-e8808d8d6384
 
 _innehållsförteckningen är interaktiv, den går att klicka på, den bits inte!_
 
